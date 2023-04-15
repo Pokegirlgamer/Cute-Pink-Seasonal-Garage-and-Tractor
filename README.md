@@ -117,7 +117,7 @@ https://www.tiktok.com/@pokegirl_gamer22
 
 ### Thanks for reading! 1 Kudos & An endorsement is already a huge help to me! Mod suggestions? Let me know in the comment section.
  
-- For more updates, Keep tracking me by clicking the Track Button & as always stay
+- For more updates, Keep tracking me by clicking the Watch Button & as always stay
 tuned!
  
 ## **All credits belongs to the author "Pokegirl Gamer".**
