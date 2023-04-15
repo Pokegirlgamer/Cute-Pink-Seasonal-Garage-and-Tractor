@@ -121,5 +121,3 @@ https://www.tiktok.com/@pokegirl_gamer22
 tuned!
  
 ## **All credits belongs to the author "Pokegirl Gamer".**
-
-**©~PGG~**
