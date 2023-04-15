@@ -51,3 +51,16 @@ How to load Cute Pink Seasonal Garage & Tractor?
 the Cute Valley Pink mod and thankfully it matched. Please do not use them
 without my consent. Glitches or Errors? Please report all of the bugs and join
 my discord server as well to contact me directly.***
+
+# **The Problems that you'll might encounter**
+
+There are two versions of Cute Pink Seasonal Garage & Tractor, the Content Patcher and Generic Mod Config Menu.
+GMCM Version doesn’t load properly, Here’s the step. Firstly, You have to run
+your SDV for it to load the assets (Play the game around 10 seconds). Lastly,
+Exit the game title and you can now toggle on/off the assets of which you like.
+So far, there are no bugs have found on the Content Patcher CPSGT version yet
+but please let me know by joining my discord server.
+
+# **A Little Introduction for Pokegirl Gamer**
+
+**Pokegirl Gamer** is a *Mod maker & a Content Creator.* She’s focusing on making mods for Windows and most especially Mobile. She once was a stardew mobile player, she loves playing stardew valley with mods but the saddening part is there are no mod makers interested on making mods for mobile (If there is, they’re not into it). She thought of giving attention to the mobile players and hear their requests so they can be on trend when it comes to modding. Now she’s asking for the support to continue making mods for stardew valley mobile players, **HELP HER OUT AND SPREAD THIS NEWS TO THE MOBILE PLAYERS!**
