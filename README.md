@@ -68,46 +68,58 @@ but please let me know by joining my discord server.
 # **Pokegirl Gamer's Social Platforms**
 
 **LINKTREE**
+
 https://linktr.ee/pokegirl_gamer
  
 **[Official YouTube Channel]**
+
 https://www.youtube.com/channel/UCdkTV8kE99x9nTap6hecqMA
  
 **[Official Facebook Page]**
+
 https://web.facebook.com/pokegirlgamer/
  
 **[Official Discord Server]**
+
 https://discord.gg/vWBmceEkMk
 
 **[Official Reddit Server]**
+
 https://www.reddit.com/user/Pokegirl_gamer
  
 **[Official Instagram Account]**
+
 https://www.instagram.com/pokegirl/_gamer/
  
 **[Official GitHub Account]**
+
 https://github.com/Pokegirlgamer
 
 **[Official DevianArt Account]**
+
 https://www.deviantart.com/pokegirlgamer23
 
 **[Official Twitch Account]**
+
 https://www.twitch.tv/pokegirl/_gamer
 
 **[Official Twitter Account]**
+
 https://twitter.com/PokegirlG
 
 **[Official Nexus Account]**
+
 https://www.nexusmods.com/users/139749883
 
 **[Official Tiktok Account]**
+
 https://www.tiktok.com/@pokegirl_gamer22
 
 ### Thanks for reading! 1 Kudos & An endorsement is already a huge help to me! Mod suggestions? Let
 me know in the comment section.
  
-~For more updates, Keep tracking me by clicking the Track Button & as always stay
-tuned!~
+- For more updates, Keep tracking me by clicking the Track Button & as always stay
+tuned!
  
-All credits belongs to the author "Pokegirl Gamer".
+## All credits belongs to the author "Pokegirl Gamer".
 ©~PGG~
