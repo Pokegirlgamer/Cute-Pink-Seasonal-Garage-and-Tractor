@@ -115,11 +115,11 @@ https://www.nexusmods.com/users/139749883
 
 https://www.tiktok.com/@pokegirl_gamer22
 
-### Thanks for reading! 1 Kudos & An endorsement is already a huge help to me! Mod suggestions? Let
-me know in the comment section.
+### Thanks for reading! 1 Kudos & An endorsement is already a huge help to me! Mod suggestions? Let me know in the comment section.
  
 - For more updates, Keep tracking me by clicking the Track Button & as always stay
 tuned!
  
-## All credits belongs to the author "Pokegirl Gamer".
-©~PGG~
+## **All credits belongs to the author "Pokegirl Gamer".**
+
+**©~PGG~**
