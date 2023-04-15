@@ -22,7 +22,7 @@ Credits To: Pokegirl Gamer.
 How to load Cute Pink Seasonal Garage & Tractor?
 
 
-Android users
+**Android users**
 
 
 1. Download the file "[CP] Cute Pink Seasonal Garage & Tractor".
@@ -34,3 +34,20 @@ Android users
 4. Paste the Mod file into the Mods folder “Stardewvalley”.
 
 5. Click your SMAPI Installer and launch the app to load the CPSGT mod. Enjoy..
+
+**Windows users**
+
+1. Download the file "[CP] Cute Pink Seasonal Garage & Tractor]".
+
+2. Must download Winrar or any types of Zip / 7z Extractor.
+
+3. Click Extract to get the files
+
+4. Copy and paste the mod file into your “Stardew Valley” folder.
+
+5. Click your SMAPI exe to load the CPSGT mod. Enjoy..
+
+***Reminder: I [Pokegirl Gamer] is the owner of these assets, I tried matching my assets to
+the Cute Valley Pink mod and thankfully it matched. Please do not use them
+without my consent. Glitches or Errors? Please report all of the bugs and join
+my discord server as well to contact me directly.***
