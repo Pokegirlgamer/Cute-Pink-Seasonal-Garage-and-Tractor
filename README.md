@@ -75,17 +75,9 @@ https://linktr.ee/pokegirl_gamer
 
 https://www.youtube.com/channel/UCdkTV8kE99x9nTap6hecqMA
  
-**[Official Facebook Page]**
-
-https://web.facebook.com/pokegirlgamer/
- 
 **[Official Discord Server]**
 
 https://discord.gg/vWBmceEkMk
-
-**[Official Reddit Server]**
-
-https://www.reddit.com/user/Pokegirl_gamer
  
 **[Official Instagram Account]**
 
@@ -98,10 +90,6 @@ https://github.com/Pokegirlgamer
 **[Official DevianArt Account]**
 
 https://www.deviantart.com/pokegirlgamer23
-
-**[Official Twitch Account]**
-
-https://www.twitch.tv/pokegirl/_gamer
 
 **[Official Twitter Account]**
 
