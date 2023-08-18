@@ -14,7 +14,8 @@ A Content Patcher that replaces the original tractor assets with pink to match t
 
 *Required Mods: Pathoschild.ContentPatcher, Pathoschild.TractorMod, GenericModConfigMenu, & Cute Valley Pink*
 
-**Mod Compatibility: Windows & Android**\
+**Mod Compatibility: Windows & Android**
+
 Credits To: Pokegirl Gamer.
 
 # **Installation GUIDE**
